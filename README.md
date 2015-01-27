@@ -3,4 +3,10 @@ Though I prefer multiverses and more, i.e. expansion =) Best wishes, sincerely, 
 
 http://aicommunity.i2p&|tertium datur
 
-Keep it complex, stupid! =) Though I prefer multiverses and more, i.e. expansion
+Keep it complex, stupid! =) 
+
+[...]
+-|+ keepers of ternary computers knowledge: http://trinary.ru/
+[...]
+
+Though I prefer multiverses and more, i.e. expansion
